@@ -7,4 +7,4 @@
  - Amo gatos
  - Quero trabalhar como game dev
 
-![alt](https://pin.it/7bASPVyva) 
+![alt](https://i.pinimg.com/736x/a8/f2/d9/a8f2d902e3607a9c1d47e30272c20766.jpg) 
